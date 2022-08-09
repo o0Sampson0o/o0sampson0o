@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sampsongohengtze@gmail.com**
 
-- 📄 Know about my experiences [I have no experience, just a learner](I have no experience, just a learner)
+- 📄  Still just learning
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
